@@ -9,13 +9,13 @@ menu:
 
 Hola, aquí vas a leer un poco sobre mi 🤩
 
-> Excidit gente, si orat suo quaeque dura Calydon nata? Pars auro post stetit
-> adfusique imis amplexus. Agmina per fabricator
-> mittere Erymanthon habetque tot.
+Hola explorers! me gusta mucho la programación pero no es mi única pasión
+Me gusta mucho los idiomas, actualmete solo hablo mi lengua materna que es el español y también hablo Ingles.
+Mi meta es poder hablar fránces y aleman el cual este último lo estudio en línea.
+Me gusta mantenerme activa haciendo ejercicio para tener una mejor salud.
+Me gusta hornear y hacer toda clases de postres.
 
-**Cineres Nile ipsa** origine discurrunt adest Unde, et quem clausus, imo,
-virens quoque tales, potuit. Ingentes insilit corpore nutricis praebebat roganti
-licuit. Denique a vestros adulantum in bella lina parte et arte generi di igitur
-quis, digitis pedes. Cum resonant tamen, namque in anxia. Non nostri trahens
-ancora.
+Me gusta hacer amigos y conocer personas nuevas, me considero una persona extrovertida,
+espero y nos podamos seguir conociendo en lo que resta del curso!
 
+Adios!
